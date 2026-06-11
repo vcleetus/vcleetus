@@ -6,6 +6,6 @@
 
 <div align="center">
 
-[sign my ata](https://mrflimflamm.atabook.org/) - [random facts about me](https://whatdoinamethos.straw.page/)
+[sign my ata](https://mrflimflamm.atabook.org/) - [random facts about me](https://whatdoinamethos.straw.page/) - [my prns.cc](https://pronouns.cc/@cleeetus)
 
 </div>
